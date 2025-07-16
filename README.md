@@ -19,6 +19,6 @@
 
 Made by Abhishek Sharma
 
-[LinkedIn](https://www.linkedin.com/in/your-profile) • [GitHub](https://github.com/your-username)
+[LinkedIn](https://www.linkedin.com/in/abhishek-sharma-796353363/) • [GitHub](https://github.com/Abhishek-Sharma08)
 
 
